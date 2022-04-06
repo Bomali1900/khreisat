@@ -1,2 +1,2 @@
-بسم الله الرحمن الرحيم# khreisat
-Alah we Akbar
+بسم الله الرحمن الرحيم # khreisat
+
